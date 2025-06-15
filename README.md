@@ -8,7 +8,7 @@ In my free time, I enjoy:
 - watching Kdrama 🎞️  
 - dreaming up weird project ideas I may or may not build 💡
 
-My current favorite quoåte is:  
+My current favorite quote is:  
 **"Without haste, but without rest."**  
 **「急がずに、でも休まずに。」**  
 — I found it on my professor’s website, and it stayed with me ever since.
